@@ -8,21 +8,23 @@ A+ rating with the BBB.
 
 Secure | No Obligation | 100% Free
 
-What Exactly Do You Do?
-We take the stress out of buying and 
+What Exactly Do we Do?
+We take the Cash out of buying and 
 refinancing investment properties by 
-allowing real estate investors to get
- multiple offers from several hard and 
-private money, asset-based lenders in a 
+allowing crypto-currency to transaction real estate investors
+ to use
+ multiple decentralized Crypto from several hard-fork and 
+private Blockchain asset-based lenders in a 
 matter of minutes. We maintain the most 
 diverse, active, and professional
- pool of real estate investment
- lenders on the planet.
+ Mining pool of real estate investment
+ lenders non-fungible and fungible token/coins on 
+The Blockchain.
 
-The Safest Way To Find A Lender!
+The Safest & Newest transecting Way To obtain Property!
 Each lender in our network has been 
 thoroughly vetted. We match you with
- verified private and hard money real 
+ verified NFT and fit's with hard-fork smart- money real 
 estate lenders who are ready, willing
  and able to lend on your real estate 
 investment.
